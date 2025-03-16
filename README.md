@@ -7,7 +7,7 @@ Reflection
 
 
 do it
-Sometimes you need to seize the present moment and cherish every moment
+Sometimes you need to seize the present moment and cherish every moment ee
 
 
 hay buhayeee
