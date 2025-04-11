@@ -16,6 +16,6 @@ nang mia's birthday, so nostalgia
 hey
 
 
-another step .
+another step ...
 
 NETWORKING is challenging 
