@@ -10,7 +10,7 @@ do ite
 Sometimes you need to seize the present moment and cherish every moment ee
 nd
 
-hay buhayeee
+hay buhayeee.
 
 nang mia's birthday, so nostalgia
 hey
